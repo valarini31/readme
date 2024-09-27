@@ -6,14 +6,12 @@
 - E perco também 
 
 
-## entre em contato comigo se quiser banca🤑
-Raul.valarini@escola.pr.gov.br
+## entre em contato comigo se quiser banca 🤑
+Raul.valarini@escola.pr.gov.br 
 
+Plataformas_bugadas99
 
-@Plataformas_bugadas99
-
-
-https://tenor.com/sWERHXBjmno.gif
+https://tenor.com/bnpkU.gif
 
 
 
