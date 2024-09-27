@@ -1,11 +1,19 @@
-# readme
-### Olá, meu nome e Raul ###
+## olá,meu nome é Raul
+### sou apostador profissional 0️⃣1️⃣
 
-https://media1.tenor.com/m/rhJSERMrXp4AAAAC/hoe-life.gif
+- Sou aluno
+- Aposto muito dinheiro
+- E perco também 
 
 
+## entre em contato comigo se quiser banca🤑
+Raul.valarini@escola.pr.gov.br
 
 
+@Plataformas_bugadas99
+
+
+https://tenor.com/sWERHXBjmno.gif
 
 
 
