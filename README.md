@@ -11,7 +11,7 @@ Raul.valarini@escola.pr.gov.br
 
 Plataformas_bugadas99
 
-https://tenor.com/bnpkU.gif
+![](https://tenor.com/bnpkU.gif)
 
 
 
